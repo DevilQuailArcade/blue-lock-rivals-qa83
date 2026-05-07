@@ -1,4 +1,4 @@
-
+professional Scripts for blue lock rivals offers the most advanced blue lock rivals Script, with auto-sell and invisibility. Perfect for dominating
 
 
 
